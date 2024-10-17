@@ -3,7 +3,7 @@
 
 - ☄️ I’m currently working on [3D Renders!](artstation.com/fyoncle)
 
-- ☄️ I’m currently learning **animating!**
+- ✨ I’m currently learning **animating!**
 
 - 📫 How to reach me **Discord: fyoncle**
 
