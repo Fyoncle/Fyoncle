@@ -5,7 +5,7 @@
 
 - ✨ I’m currently learning **animating!**
 
-- 📫 How to reach me **Discord: fyoncle**
+- 📫 To reach me you can add me on discord by the user "**fyoncle**"
 
 <h3 align="left">My social medias:</h3>
 <p align="left">
